@@ -1,4 +1,8 @@
 ### Hi there 👋
+📫 How to reach me:
+    🐦  @EloutvL
+   🔵☁️ @elout.bsky.social
+    🔗  https://www.linkedin.com/in/eloutvanleeuwen
 
 <!--
 **leeuwe/leeuwe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

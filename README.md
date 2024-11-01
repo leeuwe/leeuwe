@@ -1,6 +1,5 @@
 ### Hi there 👋
 📫 How to reach me:
-    🐦  @EloutvL
    🔵☁️ @elout.bsky.social
     🔗  https://www.linkedin.com/in/eloutvanleeuwen
 
